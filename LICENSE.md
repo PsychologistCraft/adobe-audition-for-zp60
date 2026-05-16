@@ -1,4 +1,4 @@
-# 
+# smart Adobe Audition for PC | Adobe Audition for Windows Template | macro-recording + batch-processing is the best Adobe Audition for PC | Adobe Audition for Windows template,
 
 
 
